@@ -1,7 +1,7 @@
 # gravitons
 
 
-ravitons are going to turn out to be something ridiculously simple such as G = cR and antigravity is G = rC where c is the expected c from e = mc^2 and just the R is the radius of a contained queef
+g/ravitons are going to turn out to be something ridiculously simple such as G = cR and antigravity is G = rC where c is the expected c from e = mc^2 and just the R is the radius of a contained queef
 
 
 
